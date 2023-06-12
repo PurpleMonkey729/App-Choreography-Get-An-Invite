@@ -18,7 +18,7 @@
 
 # Now, just wait! ⏰
 
-> If you are already part of our organisation, you don't have to do anything! If you still want to join in, feel free!!!
+> If you are already part of our organisation, you don't have to do anything! If you still want to join in, feel free!
 
 ----------------------------------------------------------------------
 
